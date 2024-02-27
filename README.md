@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on existing
 - 📫 How to reach me: You don't
 - 😄 Pronouns: hell/nah
-- ⚡ Fun fact: ngh~ :3
+- ⚡ Fun fact: :3
 
 <!---
 ZenguinM/ZenguinM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
